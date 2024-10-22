@@ -1,4 +1,3 @@
 ### Hehehe
 
-![](![image](https://github.com/user-attachments/assets/b58977f5-ce93-4cd3-91bd-59efd1e3a51c)
-)
+![](https://github.com/user-attachments/assets/0f2fa16f-7f8f-444e-91ee-0335046fc5cc)
